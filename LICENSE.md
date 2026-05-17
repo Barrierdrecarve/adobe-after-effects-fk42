@@ -1,4 +1,4 @@
-# 
+# Raro Vegas Pro para PC ferramentas é o melhor Vegas Pro para PC ferramentas com edição por proxy e remapeamento de tempo. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
